@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **neazmahmudn@gmail.com**                                                                          
 
-- ⚡ Fun fact **💕I Love To Design And Create New Things.👌**          <img align="right" width="700" src="Untitled ‑ Made with FlexClip.gif"> 
+- ⚡ Fun fact **💕I Love To Design And Create New Things.👌**          <img align="right" width="600" src="Untitled ‑ Made with FlexClip.gif"> 
 
 <h3 align="left">Connect with me:</h3> <img align="center" width="155" src="naym ‑ Made with FlexClip.gif"> 
 <p align="left">
